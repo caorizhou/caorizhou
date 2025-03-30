@@ -1,5 +1,5 @@
 Hi there👋
-
-我是caorizhou~
+I am caorizhou~
 
 email:caorizhou@outlook.com
+生物信息学?
